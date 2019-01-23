@@ -11,7 +11,7 @@ Once upon a time, a smart boy lives in the dark city. He loves the sun and hate 
 
 He always wishes summer could come back sooner.
 
-Meow Meow Cats are the best!
+Meow Meow Cats are the best! :heart:
 Dogs are better lets be honest 
 
 Joe :heart: Dirac distribution
@@ -28,9 +28,7 @@ After he staying at Iowa for 10 dates, he begin to hate winter!
 
 It liked eating peanut butter and pickle sandwiches and for that it was an outcast, as God intended. 
 
-Meow Meow Cats are the best!
 
-To make a change, he went to the job market. But he was too old and there was no suitable job for him. Dirac didn't know how to do it.
 Did I do it right?
 
 surprise
