@@ -1,6 +1,5 @@
 # The Tale of the Lovely Dirac
 
-
 For as long as it remembered Dirac knew that it was different. Dirac's parents left him while he was in a very young age. Dirac did not remember their names or faces.
 Dirac was in the woods then a mushroom-looking creature appeared to accompany Dirac. 
 He hated the place and decided to take a long journey and ended up in a place with a long winter, Iowa.  :blush:
@@ -11,6 +10,12 @@ Dirac went to his office and tried to find it again.
 Long long long ago,...
 
 He lived in a high mountain. He had a big beard.
+
+For as long as it remembered Dirac knew that it was different. 
+For as long as it was remembered Dirac knew that it was different.
+For as long as it remembered Dirac knew that it was different. 
+but the point was the he didnt know what excatly is different and he just could remember vague pictures.
+
 
 It dreamed of having a family - lots of the functions it knew had their own family. There were the Uniforms and the Poissons, the Exponentials and everpresent Normals, who claimed that they were related to pretty much everybody. Dirac sighed, and shouldered its backpack to go to school.
 
