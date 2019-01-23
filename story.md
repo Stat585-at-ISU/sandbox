@@ -49,6 +49,9 @@ D-I-R-A-C oh boy!
 
 Life is short, do something.
 
+
+He was looking forward to making more friends.
+
 He was fired by his boss. So he would have no income to support his family--his wife and six children. He reminded himself to be stronger. But his tear could not be stopped.
 
 To make a change, he went to the job market. But he was too old and there was no suitable job for him. Dirac didn't know how to do it.
