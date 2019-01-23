@@ -5,6 +5,9 @@ For as long as it remembered Dirac knew that it was different. Dirac's parents l
 Dirac was in the woods then a mushroom-looking creature appeared to accompany Dirac. 
 He hated the place and decided to take a long journey and ended up in a place with a long winter, Iowa.  :blush:
 He could not find anything in Iowa, just snow, a massive pile of snow. :snowflake:
+
+Dirac went to his office and tried to find it again. 
+
 Long long long ago,...
 
 He lived in a high mountain. He had a big beard.
