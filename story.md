@@ -1,4 +1,5 @@
 # The Tale of the Lonely Dirac
 
 For as long as it remembered Dirac knew that it was different.
-The snow was heavy
+
+The snow was heavy.
