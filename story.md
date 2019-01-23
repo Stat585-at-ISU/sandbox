@@ -1,13 +1,16 @@
 # The Tale of the Lovely Dirac
-For as long as it remembered Dirac knew that it was different. What's different?
-I don't know.
-It dreamed of having a family - lots of the functions it knew had their own family. There were the Uniforms and the Poissons, the Exponentials and everpresent Normals, who claimed that they were related to pretty much everybody. Dirac sighed, and shouldered its backpack to go to school.
-I do not know what to add to my storyline at this time!
-Just playing around with the stuff.
+
+
+
+For as long as it remembered Dirac knew that it was different.
+
+The snow was heavy.
 
 He hated the place and decided to take a long journey and ended up in a place with a long winter, Iowa.  :blush:
 He could not find anything in Iowa, just snow, a massive pile of snow. :snowflake:
 Once upon a time, a smart boy lives in the dark city. He loves the sun and hate of snow.
+
+The snow was heavy.
 
 He always wishes summer could come back sooner.
 
@@ -37,3 +40,4 @@ D-I-R-A-C oh boy!
 
 
 Life is short, do something.
+
