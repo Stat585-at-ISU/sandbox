@@ -22,14 +22,6 @@ Dogs are better lets be honest
 Joe :heart: Dirac distribution
 
 Once upon a time,
-He was fired by his boss. So he would have no income to support his family--his wife and six children. He reminded himself to be stronger. But his tear could not be stopped.
-
-To make a change, he went to the job market. But he was too old and there was no suitable job for him. Dirac didn't know how to do it.
-
-^_^
-
-After he staying at Iowa for 10 dates, he begin to hate winter!
-
 
 It liked eating peanut butter and pickle sandwiches and for that it was an outcast, as God intended. 
 
@@ -52,5 +44,7 @@ To make a change, he went to the job market. But he was too old and there was no
 I do not know what to add to my storyline at this time!
 Just playing around with the stuff.
 
+He always wishes summer could come back sooner.
 
 
+One day Dirac decided to get a pet cat.
