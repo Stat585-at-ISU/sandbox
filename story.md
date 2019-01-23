@@ -6,3 +6,5 @@ He could not find anything in Iowa, just snow, a massive pile of snow. :snowflak
 
 
 Meow Meow Cats are the best!
+
+One day Dirac decided to get a pet cat.
