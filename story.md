@@ -6,6 +6,8 @@ He hated the place and decided to take a long journey and ended up in a place wi
 He could not find anything in Iowa, just snow, a massive pile of snow. :snowflake:
 Long long long ago,...
 
+He lived in a high mountain. He had a big beard.
+
 It dreamed of having a family - lots of the functions it knew had their own family. There were the Uniforms and the Poissons, the Exponentials and everpresent Normals, who claimed that they were related to pretty much everybody. Dirac sighed, and shouldered its backpack to go to school.
 
 The snow was heavy.
@@ -47,6 +49,5 @@ To make a change, he went to the job market. But he was too old and there was no
 I do not know what to add to my storyline at this time!
 Just playing around with the stuff.
 
-He always wishes summer could come back sooner.
 
 One day Dirac decided to get a pet cat.
