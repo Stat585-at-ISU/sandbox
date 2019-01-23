@@ -5,7 +5,7 @@ Dirac was in the woods then a mushroom-looking creature appeared to accompany Di
 He hated the place and decided to take a long journey and ended up in a place with a long winter, Iowa.  :blush:
 He could not find anything in Iowa, just snow, a massive pile of snow. :snowflake:
 
-Dirac went to his office and tried to find it again. 
+Dirac went to his office and tried to find it again. This difference wasn't a problem, per se, but it did lead to a semi-perminent feeling of self consciousness.
 
 Long long long ago,...
 
