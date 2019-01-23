@@ -1,5 +1,6 @@
 # The Tale of the Lovely Dirac
 
+
 For as long as it remembered Dirac knew that it was different. Dirac's parents left him while he was in a very young age. Dirac did not remember their names or faces.
 Dirac was in the woods then a mushroom-looking creature appeared to accompany Dirac. 
 He hated the place and decided to take a long journey and ended up in a place with a long winter, Iowa.  :blush:
@@ -51,3 +52,6 @@ Just playing around with the stuff.
 
 
 One day Dirac decided to get a pet cat.
+
+Who is Dirac? Who am I? What am I doing here?
+I see all these people but they don't see me.
