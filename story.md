@@ -1,4 +1,7 @@
-# The Tale of the Lovely Dirac
+
+# The Tale of the Lonely Dirac
+New 
+
 
 For as long as it remembered Dirac knew that it was different. Dirac's parents left him while he was in a very young age. Dirac did not remember their names or faces.
 Dirac was in the woods then a mushroom-looking creature appeared to accompany Dirac. 
